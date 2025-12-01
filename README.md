@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Sans353CZ
 - 👀 I’m interested in gamez
 - 🌱 I’m currently learning why not to kms rn
-- 💞️ I’m looking to collaborate on yt videos
 - 📫 How to reach me: you cant
 
 <!---
