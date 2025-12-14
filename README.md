@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sans353CZ
 - 👀 I’m interested in gamez
-- 🌱 I’m currently learning why not to kms rn
+- 🌱 I’m currently learning to play DMC 5 after along time
 - 📫 How to reach me: you cant
 
 <!---
